@@ -1,5 +1,4 @@
-
-
+ ![image alt](https://github.com/azuretimee/azuretimee/blob/089240e41c910ac75d04a8da05a18efce60d764d/423093493-4552a4a5-d083-4a70-a773-77caf2dff63e.png)
    hello...
 "..."   
        welcome to my profile.    . 
