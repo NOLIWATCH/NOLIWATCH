@@ -7,5 +7,5 @@
           free to ask or talk about mee!!
           pizzas  pizzas for free! 
            ![image alt](https://github.com/azuretimee/azuretimee/blob/5bd23ddd407808f815b9c4b4022d4653b6898243/Untitled36_20250408180234.png)
-   view my [rentry](https://rentry.co/Pizzadelivery777)  !! 
+   view my [rentry](https://rentry.co/Bloxwatchnumberonefan)  !! 
   
