@@ -1,4 +1,4 @@
- ## INFO   .   LINK
+ ## INFO   .   
 
 
 
@@ -12,3 +12,5 @@
 ![1000015610](https://github.com/user-attachments/assets/0487dc3d-705a-4383-b074-cda2fbd857be)
   ERROR12 . BROKEITT ME
    art credit : @SHINOZROOM on x
+![1000015461](https://github.com/user-attachments/assets/23899c48-fe44-4db3-9efb-b3788885b7f7)
+  
