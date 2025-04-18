@@ -2,3 +2,4 @@
  [rentry.](https://rentry.co/CHANCE1)
        [STraw](https://taphya.straw.page/)
       [pronouns](https://pronouns.cc/@Xedfe)
+ _special_ ***people.***
