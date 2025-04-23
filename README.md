@@ -1,7 +1,5 @@
-## the art credit and belong to :betterin2weeks on x/twitter.
-![1000015852](https://github.com/user-attachments/assets/d8e9ab19-21f1-4cb2-b257-6aec6c6d9bcb)
-
-
+### my repository suck so yea
+![1000015867](https://github.com/user-attachments/assets/37fe4974-a2a4-465e-9c1b-1c069c04622e)
  
  [rentry.](https://rentry.co/CHANCE1)
        [STraw](https://taphya.straw.page/)
